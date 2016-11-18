@@ -6,9 +6,9 @@ Rails roar like mother who moans after sons
 
 Because the history clock indicates that the time of death has come
 
-Can someone make track stop groan?
+Can someone make tracks stop groan?
 
-I see in the compartment through the window
+In the compartment through the window I see
 
 Man who apparently had spent four winters here
 
@@ -20,13 +20,13 @@ And in the future I will try to fly
 
 No clue why again I'm punished for
 
-He looks at me constantly like he tried to fraternize
+He looks at me constantly like he try to fraternize
 
 Washed tweed and shirt like old tablecloth
 
-Check me out instantaneously, I'm sure He'll try to talk to me
+Checking me out instantaneously, I'm sure He'll try to talk to me
 
-About state of mind and civil status, what father is doin'
+About state of mind and civil status, what father is doing
 
 And about me, then suddenly a terrible noise sneak in
 
@@ -36,15 +36,15 @@ He has a cruel mouth and a supercilious tone
 
 Buy from him? I'd rather buy frost in Siberia
 
-Passenger gets rapidly, crosses Rubicon
+Passenger gets up rapidly, crosses Rubicon
 
-Quietly improve his tie and then says, "Get the fuck out!"
+Quietly improve his tie and then says, "Get out!"
 
-I see the cool marble of his eye
+I see the cold marble of his eye
 
 Dark thoughts in his skull already want to wake up
 
-His desires are hidden, not for show
+His desires are hidden, not for the show
 
 I can see that he wants to have a big house, full of other people's wives
 
