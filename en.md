@@ -60,7 +60,7 @@ The whole house in marble, the whole house in marble
 
 Dark thoughts sleep again on the top
 
-## Zwrotka 2
+## Verse 2
 
 Lamb's blood colored veins
 
@@ -122,7 +122,7 @@ The whole house in marble, the whole house in marble
 
 Dark thoughts sleep again on the top
 
-## Zwrotka 3
+## Verse 3
 
 I open the window and absorb the call of the sea
 
