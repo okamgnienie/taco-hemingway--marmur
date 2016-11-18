@@ -104,9 +104,9 @@ Cancel the tour John, Fifi vanished
 
 I look at the neighbor, I think he already fell asleep
 
-Where I'm going, I feel that you wonder
+Where I'm going, I sense that you wonder
 
-I love the Warsaw but it's getting a bit crowded
+I love the Warsaw, but it's getting a bit crowded
 
 Again, these voices when my train arrives in 'Tricity'
 
@@ -150,11 +150,9 @@ Because I want to relax, before I end up like this fellow
 
 Who disappeared, such a pity I had a plan
 
-Well, I wanted to ask him how do I know you?
+Well, I wanted to ask him how do I know him
 
-These last few days I slept little in Warsaw, it's a fact
-
-Is this menace, or rode in the same range?
+These last few days I slept a little in Warsaw, it's a fact
 
 Are this hallucinations, was I alone in the compartment?
 
@@ -184,7 +182,7 @@ There is a huge mustache, followed by a night porter
 
 - I do not know, I'll see... Do you have maybe charger for this phone...
 
-- No. We encourage guests to not useing technology
+- No. We encourage guests to not use technology
 
 - Great
 
@@ -209,4 +207,4 @@ Are these a terrible, disturbing news?
 Who found me here, who is dreaming of the night conversation?
 
 
-I want to have a big house, full of other people's wives, do you hear me ...
+'I want to have a big house, full of other people's wives, do you hear me ...'
