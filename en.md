@@ -47,3 +47,15 @@ Dark thoughts in his skull already want to wake up
 His desires are hidden, not for show
 
 I can see that he wants to have a big house, full of other people's wives
+
+## Hook
+
+I want to have a big house, full of other people's wives, do you hear me?
+
+Only you I can tell straight out, that I like to wade in numbers
+
+Some people like to gambol, and some want peace
+
+The whole house in marble, the whole house in marble
+
+Dark thoughts sleep again on the top
