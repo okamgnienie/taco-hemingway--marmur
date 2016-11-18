@@ -1,34 +1,34 @@
 ## Verse 1: Taco
 
-One hundred ton train crawling on rails
+One hundred tons train creeps on the rails
 
 Rails roar like mother who moans after sons
 
-Because the history clock indicates that the time of death has come
+Because the history clock indicates that the time to die has come
 
-Can someone make tracks stop groan?
+Can anyone make rails stop groan?
 
 In the compartment through the window I see
 
 Man who apparently had spent four winters here
 
-Cold eyes, thick beard, beneath has a bear like teeth
+Cold eyes, thick beard, beneath it has a bear like teeth
 
-By the way, I'm Filip Szcześniak if you didn't know yet
+By the way, I'm Filip Szcześniak if you don't know
 
 And in the future I will try to fly
 
-No clue why again I'm punished for
+No clue what for I'm punished again
 
-He looks at me constantly like he try to fraternize
+He looks at me constantly, like he try to fraternize
 
 Washed tweed and shirt like old tablecloth
 
-Checking me out instantaneously, I'm sure He'll try to talk to me
+Checks me out instantaneously, I'm sure he'll try to talk to me
 
 About state of mind and civil status, what father is doing
 
-And about me, then suddenly a terrible noise sneak in
+And about me, then suddenly a terrible noise sneaks in
 
 Opened door - "Coke, beer, crisps, coffee, tea!"
 
@@ -38,13 +38,13 @@ Buy from him? I'd rather buy frost in Siberia
 
 Passenger gets up rapidly, crosses Rubicon
 
-Quietly improve his tie and then says, "Get out!"
+Quietly improves his tie and then says, "Get out!"
 
 I see the cold marble of his eye
 
-Dark thoughts in his skull already want to wake up
+Dark thoughts in his skull want to wake up
 
-His desires are hidden, not for the show
+His desires are hidden, not for show
 
 I can see that he wants to have a big house, full of other people's wives
 
@@ -72,9 +72,9 @@ Simultaneously my good and bad half
 
 Night aura appeals to him
 
-Red light, could be a voicemail?
+Red light, could it be a voicemail?
 
-Is this a terrible, disturbing news?
+Are these a terrible, disturbing news?
 
 Who found me here, who is dreaming of the night conversation?
 
