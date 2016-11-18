@@ -42,7 +42,7 @@ Quietly improve his tie and then says, "Get the fuck out!"
 
 I see the cool marble of his eye
 
-Black thoughts in his skull already want to wake up
+Dark thoughts in his skull already want to wake up
 
 His desires are hidden, not for show
 
