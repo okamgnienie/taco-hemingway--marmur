@@ -59,3 +59,24 @@ Some people like to gambol, and some want peace
 The whole house in marble, the whole house in marble
 
 Dark thoughts sleep again on the top
+
+## Verse 4
+
+You deserve the last closing verse
+
+I have passenger in my head, what a gloomy character
+
+From the mirror looks at me stranger
+
+Simultaneously my good and bad half
+
+Night aura appeals to him
+
+Red light, could be a voicemail?
+
+Is this a terrible, disturbing news?
+
+Who found me here, who is dreaming of the night conversation?
+
+
+I want to have a big house, full of other people's wives, do you hear me ...
