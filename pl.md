@@ -1,4 +1,4 @@
-# Zwrotka 1: Taco
+## Zwrotka 1: Taco
 Stutonowy pociąg pełznie po szynach
 Szyny ryczą jak matula która jęczy po synach
 Bo historii zegar wskazuje że śmierci godzina już nastała
@@ -24,14 +24,14 @@ Czarne myśli w jego czaszce już się budzić chcą
 Pragnienia ma ukryte, nie na pokaz
 Widzę że chce mieć duży dom, pełen cudzych żon
 
-# Refren
+## Refren
 Chcę mieć duży dom, pełen cudzych żon, słyszysz?
 Tylko tobie mówię wprost, że ja lubię brnąć w cyfry
 Niektórzy ludzie lubią pląs, a niektórzy chcą ciszy
 Cały dom w marmurze, cały dom w marmurze
 Czarne myśli znowu śpią na górze
 
-# Zwrotka 2
+## Zwrotka 2
 Żyły w kolorze krwi jagnięcej
 Chyba w moim wieku jest lecz jakby widział więcej
 Jakby się po stromych szczytach życia wspinał mężniej
@@ -57,14 +57,14 @@ Dokąd jadę, czuję że interesuje was to
 Kocham W-wa lecz robi się tam ciut ciasno
 Znów te głosy gdy mój pociąg wjeżdża w Trójmiasto
 
-# Refren
+## Refren
 Chcę mieć duży dom, pełen cudzych żon, słyszysz?
 Tylko tobie mówię wprost, że ja lubię brnąć w cyfry
 Niektórzy ludzie lubią pląs, a niektórzy chcą ciszy
 Cały dom w marmurze, cały dom w marmurze
 Czarne myśli znowu śpią na górze
 
-# Zwrotka 3
+## Zwrotka 3
 Otwieram okno chłonąc zew morza
 Rześki wiatr, wielki świat, wodne bezdroża
 To tylko mały ja kontra ogrom przestworza
@@ -90,7 +90,7 @@ Wysilić te oczy, widzę dość ogromny hotel
 Ogromny hol, w nim znajduję jakiś skromny fotel
 Pojawia się ogromny wąs, za nim nocny portier
 
-# Dialog
+## Dialog
 -Pan Szcześniak, dobry wieczór, czekaliśmy na pana. Zameldowaliśmy pana w pokoju 515
 -Nie mam rezerwacji żadnej, także...
 - Proszę, zapraszam do windy. Zdajemy sobie sprawę że przed panem ogrom pracy oczywiście, niemniej zachęcam pana do uczestniczenia w życiu naszego hotelu. Za kilka dni odbywa się wieczorek taneczny, obecność obowiązkowa
@@ -99,7 +99,7 @@ Pojawia się ogromny wąs, za nim nocny portier
 -Super
 -Voilà. Pański pokój, a oto klucz, i video powitalne. Dobranoc, i powodzenia
 
-# Zwrokta 4
+## Zwrokta 4
 Należy wam się zwrotka końcowa
 W głowie mam pasażera, co za postać grobowa
 Z lustra patrzy na mnie obca osoba
